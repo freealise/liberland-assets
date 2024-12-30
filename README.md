@@ -10,7 +10,7 @@
 Official symbols of Free Republic of Liberland:
 * **[Flag](/flag)**
 * **[Coat of arms](/coat-of-arms)**
-* **Hymn** - in progress
+* **Hymn** - in progress (_Eurovision parody where participants may also compete for the hymn or compose it together_)
 
 All materials is available in these formats: SVG, PNG, PDF
 
